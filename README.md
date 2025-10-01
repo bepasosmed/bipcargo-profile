@@ -11,7 +11,7 @@ Kami melayani pengiriman cargo proyek besar, alat berat, hingga distribusi FMCG 
 - Trucking door-to-door
 
 ## 🚚 Kenapa Pilih BIP Cargo?
-- **Armada sendiri** (tronton, fuso, wingbox)
+- **Armada sendiri** (cdd, fuso)
 - **Gratis pick-up** area Jabodetabek
 - **Harga kompetitif & transparan**
 - **Berpengalaman dalam proyek B2B & skala nasional**
